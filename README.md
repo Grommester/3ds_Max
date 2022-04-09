@@ -17,4 +17,4 @@
 ![untitled 24](https://user-images.githubusercontent.com/90381005/161590245-25d879f7-1fef-4c23-a421-82c2e25ab36f.jpg)
 ![untitled 25](https://user-images.githubusercontent.com/90381005/161824600-49fa16f6-3555-4019-b9c6-c9f952e1d049.jpg)
 ![lezhak](https://user-images.githubusercontent.com/90381005/162265912-caf2cf32-5102-4c6d-a6d8-ac1949e9b96e.jpg)
-![sofa](https://user-images.githubusercontent.com/90381005/162586421-e37bb7cb-3d82-40f0-b906-1a15ce350f45.jpg)
+![sofa](https://user-images.githubusercontent.com/90381005/162587331-943160f2-62a6-4b91-8343-3e15c18ea3e3.jpg)
