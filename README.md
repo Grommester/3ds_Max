@@ -18,3 +18,6 @@
 ![untitled 25](https://user-images.githubusercontent.com/90381005/161824600-49fa16f6-3555-4019-b9c6-c9f952e1d049.jpg)
 ![lezhak](https://user-images.githubusercontent.com/90381005/162265912-caf2cf32-5102-4c6d-a6d8-ac1949e9b96e.jpg)
 ![sofa](https://user-images.githubusercontent.com/90381005/162587331-943160f2-62a6-4b91-8343-3e15c18ea3e3.jpg)
+![puff](https://user-images.githubusercontent.com/90381005/162626960-e4129aa9-c907-4503-85d9-41b7681f2a2b.jpg)
+![vint](https://user-images.githubusercontent.com/90381005/162627050-41d18169-7e34-4342-8785-aa693cfe944f.jpg)
+![egg](https://user-images.githubusercontent.com/90381005/162629728-d424f549-ac26-45a8-869d-ea5ad7285252.jpg)
