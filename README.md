@@ -21,3 +21,4 @@
 ![puff](https://user-images.githubusercontent.com/90381005/162626960-e4129aa9-c907-4503-85d9-41b7681f2a2b.jpg)
 ![vint](https://user-images.githubusercontent.com/90381005/162627050-41d18169-7e34-4342-8785-aa693cfe944f.jpg)
 ![egg](https://user-images.githubusercontent.com/90381005/162629728-d424f549-ac26-45a8-869d-ea5ad7285252.jpg)
+![NEWSON_Embryo](https://user-images.githubusercontent.com/90381005/163606408-cb088bf9-5450-404e-b98c-7dc19432b7a7.jpg)
